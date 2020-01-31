@@ -115,7 +115,7 @@ not that person you want to be. "
 He cut her off with what's left of him. "Shhh, don't talk anymore, just answer
 me this. 
 
-Can I ask you out for a dinner?"
+> Can I ask you out for a dinner?"
 
 "n-, well, we'll see... how... first..." 
 
