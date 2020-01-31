@@ -3,8 +3,8 @@ layout: post
 title: Why we sleep - a riveting journey to the biological fascination
 date: 2020-1-18
 categories: non-fiction
-images: fulls/cat-sleep.jpg
-tags: sleep non-fiction
+image: fulls/cat-sleep.jpg
+tags: non-fiction Meliz
 ---
 It's an important day for Meliz. The lights around staring at her nakedly, exposing her every layer of anxiety. She slowly comes to sense, raising her weak and shivering arms to her abdomen area, feeling the emptiness that had once housed a ball of excitement. The door swings open, a man with long, brown and feminine hair with a brown mustache walked in, carrying a baby wrapped in a white towel. Time is simply a 4th-dimension concept that she seems to forget, as the only sound matters at that moment is the crying of the little ball, now flailing his arms all over, unintelligibly.
 
@@ -13,7 +13,7 @@ Slowly and gently Meliz put her hand over the baby, caressing with such care tha
 "Errrr, I'm so sorry Meliz, but you know, I need to tell you something," said the man scratching his bearded chin. After he sighs a deep and sorrowful sigh, he continued.
 "From this moment forth, and for the rest of your child’s entire life, he will repeatedly and routinely lapse into a state of apparent coma. It might even resemble death at times. And while his body lies still his mind will often be filled with stunning, bizarre hallucinations. This state will consume one-third of his life."
 
-"It's called sleep," the god concluded.
+> "It's called sleep," the god concluded.
 
 ---
 

@@ -1,17 +1,17 @@
 #-------------------------------
 # General Site Settings
 title: My Writings
-logo: logo.svg # You can add own logo.
-description: I write about my thoughts, I vent about things.
+logo: logo.png # You can add own logo.
+description: I write about my thoughts, I complaint about things.
 
 
 #-------------------------------
 # Author Settings
 author:
   name: GuoXian Ho
-  image: 01.jpg
+  image: profile.jpg
   say-hello: Hello, I’m <strong>Guo Xian</strong>
-  bio: I write about <strong>thoughts</strong>, I vent about <strong>things</strong>. 
+  bio: I write about <strong>thoughts</strong>, I complaint about <strong>things</strong>. 
 
 #-------------------------------
 # Contact links

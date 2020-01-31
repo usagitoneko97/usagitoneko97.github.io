@@ -6,7 +6,7 @@ categories: fiction
 image: fulls/rejection.jpg
 tags: fiction Meliz
 ---
-"no". Meliz expressed with a face of unshakable determination. The limping 100
+"No". Meliz expressed with a face of unshakable determination. The limping 100
 years old lady stared at Meliz with pure disbelieve. 
 
 "Surely you can spare a few minutes to help an old lady cross the road, won't you. Well you see, my
