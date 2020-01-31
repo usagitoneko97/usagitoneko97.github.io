@@ -2,7 +2,7 @@
 # General Site Settings
 title: My Writings
 logo: logo.png # You can add own logo.
-description: I write about my thoughts, I complaint about things.
+description: I write about my thoughts, I complait about things.
 
 
 #-------------------------------
@@ -11,7 +11,7 @@ author:
   name: GuoXian Ho
   image: profile.jpg
   say-hello: Hello, I’m <strong>Ho Guo Xian</strong>
-  bio: I write about <strong>thoughts</strong>, I complaint about <strong>things</strong>. 
+  bio: I write about <strong>thoughts</strong>, I complain about <strong>things</strong>. 
 
 #-------------------------------
 # Contact links
