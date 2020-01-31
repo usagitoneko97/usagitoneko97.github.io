@@ -1,7 +1,8 @@
 ---
 layout: post
+tags: Non-Meliz
+image: fulls/two_desktop.jpg
 ---
-<img src="/images/fulls/two_desktop.jpg" class="fit image"> 
 
 I use Arch linux in my personal rig, naturally the first statement came out of me during my first date will unironically be 'btw do you know I use Arch?'. Meme aside, there are actually many valid and sound reason why many people developed the sense of superiority towards running Arch, a quick google search will bring out thousands of page explaining various benefit that arch brings to the table. I'm not going to reiterate the reasons, but rather detailing my personal experience
 on how Arch Linux is changing my life. (cliche alert)

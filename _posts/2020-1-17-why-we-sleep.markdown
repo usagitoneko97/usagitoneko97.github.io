@@ -3,9 +3,9 @@ layout: post
 title: Why we sleep - a riveting journey to the biological fascination
 date: 2020-1-18
 categories: non-fiction
+images: fulls/cat-sleep.jpg
 tags: sleep non-fiction
 ---
-<img src="/images/fulls/cat-sleep.jpg" class="fit image"> 
 It's an important day for Meliz. The lights around staring at her nakedly, exposing her every layer of anxiety. She slowly comes to sense, raising her weak and shivering arms to her abdomen area, feeling the emptiness that had once housed a ball of excitement. The door swings open, a man with long, brown and feminine hair with a brown mustache walked in, carrying a baby wrapped in a white towel. Time is simply a 4th-dimension concept that she seems to forget, as the only sound matters at that moment is the crying of the little ball, now flailing his arms all over, unintelligibly.
 
 Slowly and gently Meliz put her hand over the baby, caressing with such care that as though as a slight pressure will immediately shattering it into pieces. The man deliberately clears his throat, attempting to restore the forgotten concept of time. After thirteen inches has passed for Meliz, she regained her sense and fixed her eyes on the man, waiting for his revelation.

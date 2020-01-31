@@ -3,9 +3,9 @@ layout: post
 title: Interfacing swig in ceedling
 date: 2018-11-29
 categories: 
-tags: technical c python
+tags: Non-Meliz
+image: fulls/first_post.jpg
 ---
-<img src="/images/fulls/first_post.jpg" class="fit image"> 
 
 With the help of ceedling and swig, connecting c code to python could be easy.
 

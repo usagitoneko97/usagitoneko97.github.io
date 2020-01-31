@@ -1,7 +1,8 @@
 ---
 layout: post
+tags: Non-Meliz
+image: fulls/technology.jpg
 ---
-<img src="/images/fulls/technology.jpg" class="fit image"> 
 
 Technology has come a long way. But most people does not utilize the available technologies, whether or not it's about work or just personal stuff. It really should blame on major OSes like Windows and mac that are targetted to the average users, users that are expecting OSes that 'just works'--also the tagline for Apple. Because of this nature, these propietary OSes won't expose every component to the user and only left out what users wanted to see. Is it easy for non-technological savvy
 person to familiarize Windows? Yes. Can you make use of the available functionalities of Windows and perform automation to its full potential? Maybe if you invest all your time.
