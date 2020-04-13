@@ -4,7 +4,7 @@ title: Nothingness
 date: 2020-4-14
 categories: fiction
 image: fulls/nothingness.jpg
-header-img: fulls/nothingness.png
+header-img: images/fulls/nothingness.png
 subtitle: "There was nothingness. And then there were you."
 tags: fiction Meliz
 ---
