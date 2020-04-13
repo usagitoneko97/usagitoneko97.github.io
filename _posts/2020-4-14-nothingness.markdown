@@ -5,7 +5,7 @@ date: 2020-4-14
 categories: fiction
 image: fulls/nothingness.jpg
 header-img: images/fulls/nothingness.png
-subtitle: "There was nothingness. And then there were you."
+subtitle: "There was nothing. And then there were you."
 tags: fiction Meliz
 ---
 There was nothing, initially, apart from the occasional glittering of the firefly, and fine dust brushing by my arms lazily. That was until that night, where she stumbled into my life, opened up the old rusty window and let the sunlight flooded over me gracefully.
