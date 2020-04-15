@@ -26,7 +26,11 @@ I met her the very last time one day in autumn, where leaves were swaying lazily
 
 She looked at me one last time, her tears began to slowly roll down to her cheeks, as she whispered one last "goodbye" to me. I was picturing the day to come after 20 years of being a doll to her. Perhaps it was a breath of relieve, or the melancholy building up inside of me, or perhaps, it was just thankfulness to everything because it happened, I smiled the first smile of my doll career. 
 
-"Thank you... for everything..." She said, and smiled back to me too. Unable to hold back her tears any longer, she gently put me inside the box, sealed it, and there was nothing again. A strand of her hair fall into my side, reminding me of the very first night where she picked me up on the blind alley with both her hand clutching me tightly, also the night where an angel inserts a soul into a doll.
+"Thank you... for everything..." She said, and smiled back to me too. Unable to hold back her tears any longer, she gently put me inside the box, sealed it, 
+
+>and there was nothing again. 
+
+A strand of her hair fall into my side, reminding me of the very first night where she picked me up on the blind alley with both her hand clutching me tightly, also the night where an angel inserts a soul into a doll.
 
 I want to let her know that she will always be the love of my life, the sunlight that sprouts the growth of happiness within me, illuminating every corner of my rather bland soul with her holy presence.
 
