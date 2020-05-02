@@ -72,7 +72,7 @@ She pulled me up teasingly off of the bed. She seems to be in a good mood. I let
 
 "No. This is just a really bad dre-."
 
-She interrupted me suddenly, her eyes started to turn red. "Stop. Just stop. Please." She broke down in tears, clasping my hands tightly. I don't believe any of this. It cannot be true. 
+She interrupted me suddenly, her eyes started to turn red. "Stop. you are not in your dream. This is... you" She broke down in tears, clasping my hands tightly. I don't believe any of this. It cannot be true. I long for the moments when the curtains were shut, swallowing me into the darkness and emerged to see the girl again.
 
 "Don't worry my darling." She held up a cup of water, her hands were trembling. "You'll be much, much better after having this. I promise." Her words almost turned into whispering. A dazzle of moonlight hit her face, highlighting her utter desolation.
 
