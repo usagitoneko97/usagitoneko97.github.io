@@ -19,7 +19,7 @@ caressing my face while whispering calming words. She gently leads me inside the
 
 "I don't want to be here. Every second, every moment, it's suffocating me. Please, I want to go back, my heart can't take it anymore"
 
-She wiped away my tears lightly, still hanging on the little smile, she said to me, "Soon, my dear, soon."
+She wiped away my tears lightly, still hanging on her little smile, she said to me, "Soon, my dear, soon."
 
 I was brought to a dark room where there stood a wooden bed. She laid me down and stroked my hair gently to the side. It was too late to make a run, as I was sunk deep into the bed, millions of tons of weight pushed down my chest. The big clock at the center of the room ticking uneasily. "Oh, my dear..."
 
