@@ -60,7 +60,7 @@ She pulled me up teasingly off of the bed. She seems to be in a good mood. I let
 
 "Why... why is the broken clock there." I started to panic, her room doesn't seem right, something is misplaced. I frantically got up and glanced around.
 
-"The clock just fell down the other day. Is everything okay?" She asked. I turned around and looked at her, my heart stopped. Her face started to melt, and the semblance of the old lady starting to show.
+"The clock just fell down the other day. Is everything okay?" She asked. I turned around and looked at her, my heart stopped. Her face started to melt, and the semblance of the old lady starting to appear.
 
 ---
 
