@@ -67,7 +67,7 @@ The kid's round chubby face contorted to a shape much horrified as before, and s
 
 Just when Orange was going to speak up, the boy silently pushed his dad inside, while muttering something.
 
-'Look John, I know school is though for you. But you have to keep going. Don't joke like that. It's sad for your dad you know'.
+'Look John, I know school is though for you. But you have to keep going. Don't make a joke like that. It's sad for your dad you know'.
 
 'No dad what are you saying. There are three fruits trying to talk to me. And they wanted me to eat them!'
 
@@ -75,17 +75,18 @@ Just when Orange was going to speak up, the boy silently pushed his dad inside, 
 
 'Wait, really?'The frightened look on his face has replaced with excitement as he quickly followed his dad.
 
-'Well, the kid's going to be dumb anyway so it's not exactly our fault right?' Banana said. Right at the moment, Apple could hear a faint waling sound echoed from the living room inside. Three of them shivered at the sound.
+'Well, the kid's will be dumb either way so it's not exactly our fault right?' Banana said. Right at the moment, Apple could hear a faint waling sound echoed from the living room inside. Three of them shivered at the sound.
 
-'It... souded like someone pleading for help. Should we go and check it out?' Apple said, and lead the rest of them in to the living room. As they were approaching, the cries sounded much horrifying. Nonetheless, they brace themselve and slowly stepped, or rather, rolled into the living room. What came into view was the worst thing that they witness since they gained consciousness at exactly 10 minutes ago. Various fruits were stacked up and lined up and covered with smoke coming from incense behind, muffled with the sob from the fruits.
+'It... souded like someone pleading for help. Should we go and check it out?' Apple said, and lead the rest of them in to the living room. As they were approaching, the cries sounded much horrifying. Nonetheless, they brace themselve and slowly stepped, or rather, rolled into the living room. What came into view was the worst thing that they witness since they gained consciousness at exactly 10 minutes ago. Various fruits were stacked up and lined up and covered with smoke coming from incense behind, mixed with the sob from the fruits.
 
-'Get me out, please, eat me, throw me, anything...'
+'Get me out, please, eat me, throw me, anything...' The almost silent plea for help drowned the room with such grim that make all three of them deeply unnerved.
 
-Apple drag them out of the scene, not wanting to stay any longer.
+"Jesus What the hell is this." Orange said.
 
-'What was that.' Orange said.
+'I guess when your entire purpose of living is taken away from you, rendered you as a human made up [symbol] for them to satisfy their made up belief, that's what you are going to end up as, a purposeless manequine, waiting for the end that will never come.' Apple said.
 
-'I guess when your entire purpose of living is taken away from you, rendered you as a human made up [symbol] for them to satisfy their made up belief, that's what you are going to end up as, a purposeless manequine, waiting for everyting to end.' Apple said.
+After some uncomfortable minutes, Banana finally replied with nervous laughter, 'God chill applestottle mate, we are not going to turn out like them, don't worry.' Seeing them not wanting to make any move, Banana signal for them to leave.
 
-'We are not going to turn out like them, don't worry' Orange said, while Banana walked solemnly beside them.
+---
 
+"Do your really think there's no way to help them?" Orange asked dispiritedly. Gloomy mood has dominated the larger part of their journey to the unknown. 
